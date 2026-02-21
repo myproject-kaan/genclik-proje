@@ -1,2 +1,1 @@
-# genclik-proje
-lksdlkngflkjnıgfjjdhbjbıuhıjhdejıhgdıjjgsıdnıhdeıhdefoısjdıdoıgdıjsdıjgfjsıjjıfdıgd
+
